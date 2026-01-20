@@ -1,1 +1,0 @@
-# bamat-poultry-farms
